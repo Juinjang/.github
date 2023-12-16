@@ -1,4 +1,4 @@
-##주인장🏡
+##주인장
 ![1](https://github.com/UMC-juinjang/.github/assets/112510309/ff9c8298-6f72-4cbf-9eae-8b05158451be)
 
 <!--
